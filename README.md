@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently on Internship and studying independently on Ruangguru<br>🌱 I’m currently learning ReactJS and Webpack<br>💬 Ask me about Something unique if you have one?<br>⚡ I am so curious and too much eat
+🔭 I’m currently Working at Assist.id<br>🌱 I’m currently as a Fronted Developer<br>💬 Ask me about Something unique if you have one?<br>⚡ I am so curious and too much eat
 
 
 ## 🌐 Socials:
