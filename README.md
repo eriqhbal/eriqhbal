@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently a freelance software engineer<br>🌱 I’m currently as a Fronted Developer<br>💬 Ask me about Something unique if you have one?<br>⚡ I am so curious and too much eat
+🔭 I’m currently as a software engineer<br>🌱Now I'm as a System Apps Engineer<br>💬 Ask me about Something unique if you have one?<br>⚡ I am so curious and too much eat
 
 
 ## 🌐 Socials:
